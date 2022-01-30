@@ -8,7 +8,7 @@ All of these tips should be adapted to each place.
   2. Marketing
   3. Sponsorships
   4. Registration 
-  5. Event 
+  5. Events
   
 ## Announcing the event. 
 
