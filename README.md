@@ -17,7 +17,7 @@ All of these tips should be adapted to each place.
 - Steps to do:
   1. Give the approx date of when the event would be.
   2. Create a deck to get sponsors (more on it later)
-  3. Basic branding (logo etc..) and create social media pages for the event 
+  3. Basic branding (logo etc....) and create social media pages for the event 
   4. Start creating a website
   
  ## Marketing
